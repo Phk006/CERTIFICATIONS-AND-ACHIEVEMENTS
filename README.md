@@ -1,3 +1,2 @@
-# Certificates and achievements
-THIS IS MY REPOSITORY FILES WHERE I STORE ALL MY DOCUMENTS, CERTIFICATES, AND ACHIEVEMENTS HERE 
-EVERY SINGLE TIME I ACHIVE SOMETHING I POST IT HERE
+# Certificates and achievements 
+this is to acknowledge that I would be posting regular updates on my achievements 
